@@ -1,2 +1,0 @@
-# Debjit-Ghosh-
-Debjit Ghosh 
